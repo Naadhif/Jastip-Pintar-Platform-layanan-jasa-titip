@@ -1,0 +1,1 @@
+# jastip-pintar
